@@ -1,1 +1,1 @@
-# csgo
+Previously, I was always skeptical about in-game purchases of various items, including cs go skins, because I considered them to be the most useless waste of money. Then various cs go skin sites and online stores appeared where you can buy and sell cs go skins. Now I found [CSGO trade bot](https://gamble-csgo.com/trade-bot/), and I think it's pretty interesting. It's like in-game items now have more versatility.
